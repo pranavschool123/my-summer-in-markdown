@@ -7,11 +7,13 @@ My name is Pranav Kunderu, and I am a Junior at Chatsworth Charter High School. 
 
 
 ## Favorite Summer Food
+chipotle
 
+## Favorite Summer Memory with Friends
+beach
 
-## Topic 4
+## Expectations for this Class
 
-## Topic 5
 
 **BOLD**
 
