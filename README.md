@@ -6,16 +6,16 @@ My name is Pranav Kunderu, and I am a Junior at Chatsworth Charter High School. 
 ## Summer Playlist
 I listened to various different songs this summer, ranging from rap to hip-hop to RnB! One of my favorite parts of summer was listening to music and working on different things that I needed to get done. Here are some songs that I was listening to:
 
-* [Link Text](https://open.spotify.com/track/5Ha9IheRrkDyr7ZdhaRsWb)
+* ["Ryd" by Steve Lacy](https://open.spotify.com/track/5Ha9IheRrkDyr7ZdhaRsWb)
+  * I have been listening to this song for longer than just summer, but it was played excessively this past summer. I really enjoy Steve Lacy's music and this is my favorite song from his discography. The song flows really well and I just love to listen to it.
+
+* ["4x4" by Don Toliver](https://open.spotify.com/track/3Z6kQYHzeG96iXrxeps61n)
   * asdfsa
 
-* [Link Text](b)
+* ["Novacane" by Frank Ocean](https://open.spotify.com/track/4osgfFTICMkcGbbigdsa53)
   * asdfsa
 
-* [Link Text](b)
-  * asdfsa
-
-* [Link Text](b)
+* ["Tragedy" by Dhruv](https://open.spotify.com/track/22RbBpcpvW5sZwnSyXesUh)
   * asdfsa
 
 ## Favorite Summer Food
