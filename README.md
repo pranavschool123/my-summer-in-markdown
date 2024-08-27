@@ -7,7 +7,7 @@ My name is Pranav Kunderu, and I am a Junior at Chatsworth Charter High School. 
 I listened to various different songs this summer, ranging from rap to hip-hop to RnB! One of my favorite parts of summer was listening to music and working on different things that I needed to get done. Here are some songs that I was listening to:
 
 * ["Ryd" by Steve Lacy](https://open.spotify.com/track/5Ha9IheRrkDyr7ZdhaRsWb)
-  * I have been listening to this song for longer than just summer, but it was played excessively this past summer. I really enjoy Steve Lacy's music and this is my favorite song from his discography. The song flows really well and I just love to listen to it.
+  * I have been listening to this song for longer than just summer, but it was played excessively this past summer. I really enjoy Steve Lacy's music and this is my favorite song from his discography. The song flows really well and I just love to listen to it. I have memorized all of the lyrics so far and do not think that I will forget them anytime soon!
 
 * ["4x4" by Don Toliver](https://open.spotify.com/track/3Z6kQYHzeG96iXrxeps61n)
   * asdfsa
@@ -16,7 +16,7 @@ I listened to various different songs this summer, ranging from rap to hip-hop t
   * asdfsa
 
 * ["Tragedy" by Dhruv](https://open.spotify.com/track/22RbBpcpvW5sZwnSyXesUh)
-  * asdfsa
+  * This song has an interesting background for me. I had heard of Dhruv previous to this summer
 
 ## Favorite Summer Food
 This summer, I really started getting into Chipotle. I won't lie, I have always been fond of Chipotle. However, I previously used to eat it once every few months. Summer completely changed this. I decided to eat Chipotle once the first week of summer. Then, a few days later, I got it again. Then again. By the end of summer, I probably ate Chipotle around 10 times! I really enjoyed it and just know that this fondness for Chipotle will stay with me for the forseeable future. P.S. it is currently the third week of school and I have already had it twice LOL.
