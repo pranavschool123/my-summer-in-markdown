@@ -7,7 +7,8 @@ My name is Pranav Kunderu, and I am a Junior at Chatsworth Charter High School. 
 I listened to various different songs this summer, ranging from rap to hip-hop to even indie! One of my favorite parts of summer was listening to music and working on different things that I needed to get done. Here are some songs that I was listening to:
 
 * asdfa
-  - asdfsa
+  
+  * asdfsa
 
 ## Favorite Summer Food
 This summer, I really started getting into Chipotle. I won't lie, I have always been fond of Chipotle. However, I previously used to eat it once every few months. Summer completely changed this. I decided to eat Chipotle once the first week of summer. Then, a few days later, I got it again. Then again. By the end of summer, I probably ate Chipotle around 10 times! I really enjoyed it and just know that this fondness for Chipotle will stay with me for the forseeable future. P.S. it is currently the third week of school and I have already had it twice LOL.
